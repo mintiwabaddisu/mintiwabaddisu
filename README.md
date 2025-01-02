@@ -1,5 +1,5 @@
 - 👋 Hi, I’m mintiwab adisu
-- 👀 I’m interested in Working 
+- 👀 I’m interested in Working Researches on Water Technology
 - 🌱 I’m currently a Lecturer at Ambo University
 - 💞️ I’m looking to collaborate on Hydraulic and Water Resources Engineering
 - 📫 How to reach me email: mintiwabaddisu@gmail.com
